@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @timothybeach
+- 👀 I’m interested in Orthodox Christianity ☦️
+- 🌱 I’m currently learning Theology ☦️
+- 💞️ I’m looking to collaborate on Eastern Orthodox Christian resources ☦️
+- 📫 email: beachtimothyd@gmail.com
+- 🌎 timbeach.net
